@@ -1,2 +1,2 @@
 ## BYT
-WKM Events - Agencja Reklamowa
+WKM Events - Agencja Eventowa
